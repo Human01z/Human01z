@@ -1,4 +1,4 @@
-- 👋 Hi, I’m senuja Jayama 
+- 👋 Hi, I’m senuja Jayamanna
 - 👀 I’m interested in ...AI 
 - 🌱 I’m currently learning ...PYTHON 
 - 💞️  to collaborate send me a mesage
