@@ -1,1 +1,1 @@
-- 👋 Hi, I’m senuja Jayamanna
+👋 Hi
